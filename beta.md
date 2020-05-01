@@ -1,4 +1,4 @@
-Here I a grab a hold with my left palm facing upward. We call this an `undercling`. My right hand is on a big hold -- a bit slopey -- but still pretty good. A hold that you can put most of your finger length behind is called a `jug`. 
+Here I a grab a hold with my left palm facing upward. We call this an `undercling`. My right hand is on a big hold. A hold that you can put most of your finger length behind is called a `jug`. 
 
 Next, I aim for a hole in the wall we call a `pocket`. This pocket is deep enough to put the first pads of my index and middle finger in. Since the pocket is farther than my left shoulder and I am aiming for it with my right hand, there is a natural tendency for my right hip to spin away from the wall. However, I try keep my hips relatively parallel to the rock so that my right foot remains engaged.
 
