@@ -6,11 +6,13 @@ When I try to climb a route, I break it down into sections. So instead of trying
 
 I get sad. I worry. I am not in my home country and I don't know when the next flight will be. I can no longer go outside when I used to stay outside 16 hours a day.
 
-But I take it day by day. Sometimes, it's hard to get through a day. So I take it minute by minute. And sometimes, as I learned in yoga, we'll have to take it breath by breath. 
+But I take it day by day. Sometimes, it's hard to get through a day. So I take it minute by minute. And sometimes, as I learned in yoga, we'll have to take it breath by breath. So as we say in climbing, come on! Let's go
 
+venga
 allez
 yala
 auf geht's
 davei
-kaya
+co len
+kayay 
 galaw-galaw lang ng paa!
